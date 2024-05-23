@@ -1,0 +1,1 @@
+JYcoin & LEEcoin Logo
